@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **testing@gmail.com**
+- 📫 How to reach me **ek62gt5vsfg@gmail.com**
 
 - ⚡ Fun fact **I really want to be rich**
 
